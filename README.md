@@ -11,3 +11,4 @@ www.linkedin.com/in/sheikh-samad-58711b307
 
 💙 Join the channel to see more videos like this. www.linkedin.com/in/sheikh-samad-58711b307
 
+![preview img](/preview.png)
